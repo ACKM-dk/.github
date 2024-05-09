@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+🙋‍♀️ We are a Danish-owned Game & Web hosting service. Our prices are competitive, offering top-notch quality without breaking the bank.
+
 <!--
 **Here are some ideas to get you started:**
 
